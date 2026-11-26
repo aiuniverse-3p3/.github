@@ -59,7 +59,7 @@ Welcome to **AI Universe's GitHub!** ⚡️ AI Universe is a 100% free, gamified
 
 🌐 **[Official Website](https://aiuniverse-3p3.pages.dev/)** &nbsp;•&nbsp; 📺 **[YouTube (@aiuniverse-3p3)](https://www.youtube.com/@aiuniverse-3p3)** &nbsp;•&nbsp; 🐦 **[X (@MK_here_bro)](https://x.com/MK_here_bro)**
 
-📸 **[Instagram (@aiuniverse3p3)](https://www.instagram.com/aiuniverse3p3/)** &nbsp;•&nbsp; 👽 **[Reddit (u/aiuniverse-3p3_here)](https://www.reddit.com/user/mk_aiuniverse_3p3/)** &nbsp;•&nbsp; 💻 **[GitHub Resources](https://github.com)**
+📸 **[Instagram (@aiuniverse3p3)](https://www.instagram.com/aiuniverse3p3/)** &nbsp;•&nbsp; 👽 **[Reddit (u/aiuniverse-3p3_here)](https://www.reddit.com/user/aiuniverse-3p3_here/)** &nbsp;•&nbsp; 💻 **[GitHub Resources](https://github.com)**
 
 ---
 
